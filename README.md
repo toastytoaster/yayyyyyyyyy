@@ -1,4 +1,4 @@
 # yayyyyyyyyy
 
 
-I liek to dance sometimes.
+I like to dance sometimes.
